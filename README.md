@@ -12,3 +12,4 @@ Even small steps count when exploring the Web3 space 🚀
 ---
 
 📌 This is just a learning journey, not financial advice!
+11
